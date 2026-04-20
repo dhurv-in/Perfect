@@ -6,3 +6,4 @@ perps by avantis good project
 rips is 🔥🔥
 cat town cute game☺
 Brett upside potential
+Rips is favorite so far
