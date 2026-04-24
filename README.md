@@ -7,3 +7,4 @@ rips is 🔥🔥
 cat town cute game☺
 Brett upside potential
 Rips is favorite so far
+should i launch my coin? 
