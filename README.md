@@ -11,3 +11,4 @@ should i launch my coin?
 base app is 🔥
 megapot 🥺🥺 high hopes
 swapping on base is so far easiest
+gamble on pixy basepot 🙂🙂
