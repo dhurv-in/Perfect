@@ -13,3 +13,4 @@ megapot 🥺🥺 high hopes
 swapping on base is so far easiest
 gamble on pixy basepot 🙂🙂
 no risk no reward 🙂
+pixy should promote itself
