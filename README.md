@@ -15,3 +15,4 @@ gamble on pixy basepot 🙂🙂
 no risk no reward 🙂
 pixy should promote itself
 free today might explore base more
+I'm lost about farcaster
