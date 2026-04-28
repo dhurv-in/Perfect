@@ -20,3 +20,4 @@ boring day
 day 7 of trying baseapps
 didn't get basepot of pixy 🥲
 eth is bullish today 🙂
+why so many eyes on base? 🤨
