@@ -18,3 +18,4 @@ free today might explore base more
 I'm lost about farcaster
 boring day
 day 7 of trying baseapps
+didn't get basepot of pixy 🥲
