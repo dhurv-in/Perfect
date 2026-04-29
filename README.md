@@ -33,3 +33,4 @@ damn zora future 🔮
 sport.fun? really? 
 elsa? 
 what's mamo
+mamo is okayy
