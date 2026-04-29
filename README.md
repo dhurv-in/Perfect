@@ -48,3 +48,4 @@ toshi coin
 good buy? 
 ski mask dog? lolz
 base god
+lolz coin should be in top 10
