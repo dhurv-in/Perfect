@@ -40,3 +40,4 @@ tokenbot is 🔥
 we need base emoji
 keyboard cat? really
 4.3 mil mc? damnnn
+should i buy it
