@@ -42,3 +42,4 @@ keyboard cat? really
 4.3 mil mc? damnnn
 should i buy it
 nope not happening
+Degen coin
