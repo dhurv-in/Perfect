@@ -35,3 +35,4 @@ elsa?
 what's mamo
 mamo is okayy
 Rips
+Edge
