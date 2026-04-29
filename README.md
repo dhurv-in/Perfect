@@ -36,3 +36,4 @@ what's mamo
 mamo is okayy
 Rips
 Edge
+tokenbot is 🔥
