@@ -25,3 +25,4 @@ so many new wallets
 gm
 swapping on base
 molt coin? 
+next meme coin is brett
