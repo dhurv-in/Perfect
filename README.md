@@ -37,3 +37,4 @@ mamo is okayy
 Rips
 Edge
 tokenbot is 🔥
+we need base emoji
