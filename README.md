@@ -29,3 +29,4 @@ next meme coin is brett
 relay link is best 👍
 Base
 virtual protocol 🔥
+damn zora future 🔮
