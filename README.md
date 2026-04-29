@@ -23,3 +23,4 @@ eth is bullish today 🙂
 why so many eyes on base? 🤨
 so many new wallets
 gm
+swapping on base
