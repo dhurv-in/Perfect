@@ -44,3 +44,4 @@ should i buy it
 nope not happening
 Degen coin
 like that coin
+toshi coin
