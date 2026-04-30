@@ -55,3 +55,4 @@ C
 CO
 COI
 COIN
+COINB
