@@ -54,3 +54,4 @@ based morning
 C
 CO
 COI
+COIN
