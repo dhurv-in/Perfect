@@ -97,3 +97,4 @@ it's nearly gambling
 9/5 is the date ig
 wen base coin😕
 gmgmgm
+base app 🔥
