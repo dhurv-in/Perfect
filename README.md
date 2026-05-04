@@ -98,3 +98,4 @@ it's nearly gambling
 wen base coin😕
 gmgmgm
 base app 🔥
+GNGN
