@@ -92,3 +92,4 @@ $B
 $BA
 $BAS
 $BASE
+polymarket trading again🙂
