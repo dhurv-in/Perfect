@@ -93,3 +93,4 @@ $BA
 $BAS
 $BASE
 polymarket trading again🙂
+it's nearly gambling
