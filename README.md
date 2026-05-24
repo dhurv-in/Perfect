@@ -124,3 +124,4 @@ was up gms
 wen? 
 base when
 gms 
+gm based people
